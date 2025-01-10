@@ -1,1 +1,2 @@
 # fire-kirin
+[Fire Kirin](https://firekirina.com/exploring-top-alternatives-to-fire-kirin-casino/) is a fish arcade game that combines skill-based gameplay with casino-style elements, popular in gaming arcades and online platforms. Players use a virtual cannon to shoot at various types of fish swimming across the screen, earning points or rewards based on the fish they catch. The game features vibrant graphics, diverse sea creatures, and power-ups to enhance the gaming experience.
